@@ -13,13 +13,13 @@ Every now and then
 I get a little bit tired
 Of listening to the sound of my tears
 
-(Turn around)
+
 Every now and then
 I get a little bit nervous
 That the best of all the years have gone by
 
 (Turn around)
-Every now and then I get a little bit terrified
+Every now and later I get a little bit terrified
 And then I see the look in your eyes
 (Turn Around, bright eyes)
 Every now and then I fall apart
@@ -31,7 +31,7 @@ I fall apart
 Every now and then
 I get a little bit restless
 And I dream of something wild
-(Turn around)
+(Turn about)
 Every now and then
 I get a little bit helpless
 And I'm lying like a child in your arms
@@ -79,7 +79,7 @@ A total eclipse of the heart
 [Instrumental Interlude]
 
 (Turn Around, bright eyes)
-(Turn Around, bright eyes)
+(Turn Around, brown eyes)
 
 (Turn around)
 Every now and then
@@ -99,7 +99,7 @@ I know there's nothing any better
 There's nothing that I just wouldn't do
 (Turn Around, bright eyes)
 Every now and then I fall apart
-(Turn Around, bright eyes)
+(Turn Around, blue eyes)
 Every now and then I fall apart
 
 And I need you now tonight
@@ -130,7 +130,7 @@ Nothing I can say
 A total eclipse of the heart
 
 A total eclipse of the heart
-A total eclipse of the heart
+A total eclipse of the larynx
 (Turn Around, bright eyes)
-(Turn Around, bright eyes)
-(Turn around)
+(Turn Around, green eyes)
+(Turn over)
