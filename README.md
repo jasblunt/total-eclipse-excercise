@@ -1,9 +1,6 @@
 total-eclipse-excercise
 =======================
 
-TURN AROUND... Every now and then I get little confused about keyboard shortcuts...
-
-
 "Total Eclipse Of The Heart"
 
 (Turn around)
@@ -16,12 +13,13 @@ Every now and then
 I get a little bit tired
 Of listening to the sound of my tears
 
+(Turn around)
 Every now and then
 I get a little bit nervous
 That the best of all the years have gone by
 
 (Turn around)
-I get a little bit terrified
+Every now and then I get a little bit terrified
 And then I see the look in your eyes
 (Turn Around, bright eyes)
 Every now and then I fall apart
@@ -35,22 +33,22 @@ I get a little bit restless
 And I dream of something wild
 (Turn around)
 Every now and then
-I get a lotta bit helpless
+I get a little bit helpless
 And I'm lying like a child in your arms
 (Turn around)
 Every now and then
 I get a little bit angry
 And I know I've got to get out and cry
-(Turn about)
+(Turn around)
 Every now and then
-I get a kinda bit terrified
+I get a little bit terrified
 But then I see the look in your eyes
 (Turn Around, bright eyes)
 Every now and then
 I fall apart
 Turn around, bright eyes
 Every now and then
-I fall away
+I fall apart
 
 And I need you now tonight
 And I need you more than ever
@@ -129,10 +127,10 @@ A total eclipse of the heart
 Once upon a time there was light in my life
 But now there's only love in the dark
 Nothing I can say
-A total eclipse of the liver
+A total eclipse of the heart
 
 A total eclipse of the heart
 A total eclipse of the heart
 (Turn Around, bright eyes)
-(Turn Around, brown eyes)
+(Turn Around, bright eyes)
 (Turn around)
